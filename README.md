@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @O-mahhhh
+- 👋 Hi, I’m @Muslimah
 
 - 🌱 I'm an emerging data analyst passionate about learning, growth, and meaningful collaboration. I’m currently building a strong foundation in data analysis, with a keen interest in using data to uncover insights and drive smarter decisions
 💡 I'm open to entry-level roles, internships, and collaborative projects where I can apply and expand my skills.
